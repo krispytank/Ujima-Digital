@@ -1,1 +1,1 @@
-# Ujima Digita
+# Ujima Digital
